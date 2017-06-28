@@ -1,3 +1,0 @@
-# PropAcad
-
-dfgfdsgf
